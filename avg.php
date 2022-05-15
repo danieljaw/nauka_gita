@@ -3,4 +3,6 @@ DANIEL
 
 lubie naleśniki
 
-inne wagi kompletnie
+
+0.9 aanakajkahjajakh
+
