@@ -3,4 +3,4 @@ DANIEL
 
 lubie naleśniki
 
-+ nssdnlnkldlssvk
+inne wagi kompletnie
