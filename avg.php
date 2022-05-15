@@ -2,3 +2,5 @@ DANIEL
 
 
 lubie naleśniki
+
++ nssdnlnkldlssvk
